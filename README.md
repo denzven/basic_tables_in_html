@@ -4,8 +4,8 @@
 
 ### output--->
 
-https://imgur.com/sYnHoek calender ![calender](https://imgur.com/sYnHoek)
+https://imgur.com/sYnHoek calender ![calender](https://imgur.com/sYnHoek.png)
 
-https://imgur.com/8QBqdJ2 timetable ![timetable](https://imgur.com/8QBqdJ2)
+https://imgur.com/8QBqdJ2 timetable ![timetable](https://imgur.com/8QBqdJ2.png)
 
 hope yall like it 💜
